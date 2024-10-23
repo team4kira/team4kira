@@ -1,7 +1,7 @@
 👋 Hi, I’m @team4kira <br>
-👀 I’m interested in Network Administration, System Administration, Cybersecurity and Web Development <br>
+👀 I’m interested in Network Administration, System Administration, Cybersecurity, Technical Support, and Web Development <br>
 🌱 I recently completed my Cybersecurity Certification at the University of Toronto <br>
-💞️ I’m looking for networking and work opportunities <br>
+💞️ I’m looking for networking and career opportunities <br>
 📫 How to reach me: LinkedIn, email or my website: https://www.kd-digital.ca/ <br>
 😄 Pronouns: he/him <br>
 ⚡ Fun fact: I enjoy cliff diving
